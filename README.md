@@ -1,0 +1,1 @@
+as fi pus astea la timp daca nu imi dadea crash fusion de fiecare data cand incerc sa dau export
